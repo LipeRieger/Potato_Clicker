@@ -17,7 +17,7 @@ As fábricas neste desenvolvimento, são úteis para produzir batatas enquanto v
  - GitHub Desktop
 
 
-Have a great day!
+Tenha um ótimo dia! n^w^n)
 
 __________________ ׂׂૢ་༘࿐
 
